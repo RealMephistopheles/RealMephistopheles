@@ -20,6 +20,7 @@ I consider myself as a beginner even after a couple years ( I never get out of m
 I know my code is not optimized or anything but i'm having fun making these little projects but
 
 
+
 IF you have some tips and tricks to help me learn I will gladly take them.
 We must help each other learn in this community right, guys????
 
