@@ -13,7 +13,7 @@ Anyways, here I will have a couple projects that I consider as **FINISHED** or m
 
 (even though most of ther time they're are far from what I wanted to do lol)
 
-# I'm dog water at coding, I know
+## 💀 I'm dog water at coding, I know
 
 I consider myself as a beginner even after a couple years ( I never get out of my comfortable zone lol )
 
