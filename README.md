@@ -6,7 +6,7 @@
 
 Hi guys ! I'm Mephisto and Im a French guy __(don't hate me because im baguette)__ that loves IT, Coding and Innovating in the things that surrounds me !
 
-Most of the time i'm "Idea guy" and never a "doer" you know? but for once i'll be doing some things ... hoefully 🙄
+Most of the time i'm "Idea guy" and never a "doer" you know? but for once i'll be doing some things ... hopefully 🙄
 
 
 Anyways, here I will have a couple projects that I consider as **FINISHED** or maybe **WIP** 👀
